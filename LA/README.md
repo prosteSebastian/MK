@@ -1,0 +1,1 @@
+# Surely umim vyslovit: "triangularizace"
